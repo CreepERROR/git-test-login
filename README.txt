@@ -1,1 +1,1 @@
-Bonjour, je m’appelle HUGOT Benjamin
+Bonjour, je mâ€™appelle XXX YYY
